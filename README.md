@@ -6,4 +6,4 @@
 # Why should you play Fortnite?
 ## You shouldn't. Fortnite is a joke. Never play it in your life. I beg you. PLEASE DO NOT PLAY Fortnite.
 ![FORTNITE SUCKS](https://i.ytimg.com/vi/zhqfplPm05k/maxresdefault.jpg)
-Here is a link to download [FORTNITE](https://www.epicgames.com/fortnite/en-US/home)
+Here is a link to download [FORTNITE](https://www.psychologytoday.com/us/therapists/ca/cerritos)
